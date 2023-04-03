@@ -1,4 +1,4 @@
-# 얘들아 열심히 하자  
+# 얘들아 열심히 하자  ^0^
 <!--
 
 **Here are some ideas to get you started:**
