@@ -1,5 +1,4 @@
-## Hi there 👋
-
+# 얘들아 열심히 하자  
 <!--
 
 **Here are some ideas to get you started:**
